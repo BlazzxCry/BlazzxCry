@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @BlazzxCry
+- 👋 Hi, I’m BlazzxCry
 - 👀 I’m interested in ...<Youtubers>
 - 🌱 I’m currently learning ...<Google ads>
 - 💞️ I’m looking to collaborate on ...
