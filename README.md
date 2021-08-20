@@ -2,7 +2,7 @@
 - 👀 I’m interested in ...<Youtubers>
 - 🌱 I’m currently learning ...<Google ads>
 - 💞️ I’m looking to collaborate on ...
-- 📫 How to reach me ...<Rubixzmlbb@gmail.com>
+- 📫 How to reach me ...<Nazirulchannel95@gmail.com>
 
 <!---
 BlazzxCry/BlazzxCry is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
